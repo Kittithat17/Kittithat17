@@ -1,4 +1,4 @@
-Hi 👋 My name is Kittithat Wongsod
+Hi 👋 My name is humnoy
 ==================================
 
 * 🌍  I'm based in Thailand
