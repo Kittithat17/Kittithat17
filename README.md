@@ -1,4 +1,4 @@
-Hi 👋 My name is humnoy
+Hi 👋 My name is Kittithat
 ==================================
 
 * 🌍  I'm based in Thailand
